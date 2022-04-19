@@ -3,4 +3,4 @@
 - 🌱 I’m currently doing an apprenticeship as an system admin.
 - 👻 I'm currently working on my youtube channel, my personal website and my twitch. 
 - 💞️ I’m looking to collaborate on youtube to make fun youtube videos for everyone to watch. 
-- 📫 How to reach me you can reach me over the contact page on my website. 
+- 📫 You can reach me over the contact page on my website or over my socials. 
