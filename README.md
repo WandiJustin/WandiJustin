@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @WandiJustin but call me Wandi.
-- 👀 I’m interested in gaming, youtube, system engeneering, homelabs and programming.
+- 👀 I’m interested in gaming, youtube, system engeneering, homelabbing and programming aswell as in weightlifting and other sports.
 - 🌱 I’m currently doing an apprenticeship as an system admin.
-- 👻 I'm currently working on my youtube channel, my personal website and my twitch. 
-- 💞️ I’m looking to collaborate on youtube to make fun youtube videos for everyone to watch. 
+- 👻 I'm currently working on my youtube & tiktok channel, my personal website and my twitch. 
 - 📫 You can reach me over the contact page on my website or over my socials. 
